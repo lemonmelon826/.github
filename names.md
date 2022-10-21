@@ -30,7 +30,7 @@
 |Morin Emmanuel  | | |
 |Prashanth Theethasge | | |
 |Sabinus Shibu | | |
-|Sobanikka Xavier | | |
+|Sobanikka Xavier | lemonmelon826 | Beginner |
 |Sofia Borabien  | | |
 |Aidan Zhou | | |
 |Amy Hu | | |
